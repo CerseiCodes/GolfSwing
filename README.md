@@ -16,5 +16,5 @@ Best golf swing YouTube short videos
 <a href="https://www.youtube.com/shorts/mYlaYYjU7CI">Proper Golf Grip</a>
 *How to correctly hold the golf club for your best golf swing.
 
-<a href="[https://www.youtube.com/shorts/mYlaYYjU7CI](https://www.youtube.com/shorts/s4tFPPEdw80)">Bryson DeChambeau Golf Swing</a>
+<a href="https://www.youtube.com/shorts/s4tFPPEdw80">Bryson DeChambeau Golf Swing</a>
 *Learn how Bryson DeChambeau gets width and power from his driver golf swing.

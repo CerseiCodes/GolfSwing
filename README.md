@@ -1,7 +1,7 @@
 # GolfSwing
 Best golf swing YouTube short videos
 
-<a href="https://www.youtube.com/shorts/hWKyx46FAt4">Best Golf Swing Basic YouTube Short Video</a>
+<a href="https://www.youtube.com/shorts/hWKyx46FAt4">Best Golf Swing Basics YouTube Short Video</a>
 *Find out how to create the perfect golf backswing to improve your game.
 
 <a href="https://www.youtube.com/shorts/ivsbDWW1n8U">Golf Driver Swing Practice Drill</a>

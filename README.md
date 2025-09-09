@@ -4,6 +4,9 @@ Best golf swing YouTube short videos
 <a href="https://www.youtube.com/shorts/hWKyx46FAt4">Best Golf Swing Basics YouTube Short Video</a>
 *Find out how to create the perfect golf backswing to improve your game.
 
+<a href="https://www.youtube.com/watch?v=__rAN2VcAmA">How to Slow Down Your Golf Swing</a>
+* Learn how to slow down your golf swing to improve your scores and have more fun.
+
 <a href="https://www.youtube.com/shorts/ivsbDWW1n8U">Golf Driver Swing Practice Drill</a>
 *Improve your golf driver swing to better your golf game and lower your scores.
 

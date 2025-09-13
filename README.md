@@ -21,3 +21,8 @@ Best golf swing YouTube short videos
 
 <a href="https://www.youtube.com/shorts/s4tFPPEdw80">Bryson DeChambeau Golf Swing</a>
 *Learn how Bryson DeChambeau gets width and power from his driver golf swing.
+
+<a href="https://www.youtube.com/watch?v=DxjJgkt_C0c">How to Correctly Use a Golf Impact Bag</a>
+*Find out how to correclty use a Golf Impact Bag to generate more power.
+
+
